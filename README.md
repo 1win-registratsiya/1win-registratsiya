@@ -1,4 +1,4 @@
-# 🚀 Регистрация 1win — удобный доступ
+# 🚀 Регистрация 1win — на официальном сайте
 
 [![Регистрация 1win](https://img.shields.io/badge/Регистрация_1win-blue?style=for-the-badge)](https://gloriaurl.cfd/s/playing)
 

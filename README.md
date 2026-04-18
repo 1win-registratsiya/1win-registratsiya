@@ -1,6 +1,6 @@
 # 🚀 Регистрация 1win — на официальном сайте
 
-[![Регистрация 1win](https://img.shields.io/badge/Регистрация_1win-blue?style=for-the-badge)](https://gloriaurl.cfd/s/playing)
+[![Регистрация 1win](https://img.shields.io/badge/Регистрация_1win-blue?style=for-the-badge)](https://lkzq.cc/8b4591)
 
 ---
 
@@ -72,7 +72,7 @@
 
 Перейдите напрямую:
 
-[![Регистрация 1win](https://img.shields.io/badge/Регистрация_1win-blue?style=for-the-badge)](https://gloriaurl.cfd/s/playing)
+[![Регистрация 1win](https://img.shields.io/badge/Регистрация_1win-blue?style=for-the-badge)](https://lkzq.cc/8b4591)
 
 ---
 

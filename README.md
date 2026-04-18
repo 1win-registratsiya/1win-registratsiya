@@ -1,6 +1,6 @@
 # 🚀 Регистрация 1win — официальный сайт
 
-[![Регистрация 1win](https://img.shields.io/badge/Регистрация_1win-blue?style=for-the-badge)](https://lkzq.cc/8b4591)
+[![Удобная кнопка для регистрации на официальном сайте 1win](https://img.shields.io/badge/Регистрация_1win-blue?style=for-the-badge)](https://lkzq.cc/8b4591)
 
 ---
 
